@@ -1,0 +1,2 @@
+# premium-ulu-knife-001-ulu-knife-forging-crescent-b
+Tired of scrambling to organize your ulu knife forging workshop? Your syllabus, materials list, and schedule are scattered across sticky notes and browser tabs.  This all-in-one Notion template consolidates every aspect of your ulu knife and crescent blade craft workshop, saving hours of planning. From forging techniques to final sharpening, it pro
